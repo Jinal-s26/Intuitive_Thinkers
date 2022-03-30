@@ -1,2 +1,0 @@
-# Intuitive_Thinkers
- 
